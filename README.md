@@ -28,7 +28,7 @@
 - c programming -90% <br>
 
 ### **goals**
-i want to become a 'software degree' in mnc
+i want to become a 'software employee' in mnc
 ### **Hobbies**
 - singing
 - dancing
